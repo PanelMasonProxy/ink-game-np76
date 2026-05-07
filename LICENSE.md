@@ -1,4 +1,4 @@
-
+ink game rare Script offers the most advanced ink game Script, with no clip and undetectable. Perfect for dominating any match.
 
 
 
